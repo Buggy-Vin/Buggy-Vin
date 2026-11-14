@@ -1,4 +1,4 @@
-# Hi, I'm Phutthiphong (Bug) 👋
+# Hi, I'm Phutthiphong (Bug) 
 
 Applied Economics graduate from Kasetsart University, aspiring Data & Business Analyst based in Bangkok, Thailand.
 
